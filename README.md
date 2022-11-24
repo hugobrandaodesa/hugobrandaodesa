@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hugobrandaodesa
+- 👀 I’m interested in creating, learning languages and be happy with simple things.
+- 🌱 I’m currently learning HTML, CSS, Javascript, and how to organize this page.
+- 🌎 I’m looking to collaborate on turn the world a better place, seek for truth stuff and be surrounded by good people.
+- 📫 You can send me an e-mail: hugobrandaodesa@gmail.com
